@@ -1,1 +1,1 @@
-Always help others. 
+Always help others and laugh often. 
